@@ -1,0 +1,3 @@
+- 👋 Hi, I’m  Andrew. I from Russia.
+- 🌱 I am a university student in the 1st year of IT.
+- 📫 My telegram: andrew_loxov
